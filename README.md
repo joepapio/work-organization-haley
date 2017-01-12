@@ -1,2 +1,2 @@
 # work-organization-haley
-tips for organizing research and working in tes
+tips for organizing research and working in teams
